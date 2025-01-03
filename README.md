@@ -1,0 +1,11 @@
+- 👋 Hi, I’m @KetsiaAdairse
+- 👀 I’m interested in everything
+- 🌱 I’m currently I'm learning about GitHub, delving deeper into SQL, Python and Big Data tools (Hadoop, Spark, etc.)
+- 💞️ I’m looking to collaborate on Anything that can add knowledge to me, and collaboration to others!
+- 📫 How to reach me Via email: keeetsiasilva@gmail.com
+Or Whatsapp: 31 9 80266892
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I'm passionate about Astrophysics, reading science fiction and fantasy, but a novel also has a place in my heart.
+- Technology is transforming my perception of “the world”. I love reading and listening to music at the same time,
+- but if I'm doing something and you want to ask or comment on a subject, I won't be able to pay attention to you, because I can't do two things at the same time,
+- when one of them demands more of my attention than than the other. My favorite series are Supernatural and Harry Potter. I love anime and my favorite is Narutinho!
